@@ -1,0 +1,1 @@
+![image alt](https://github.com/Muneeb10/Modern-Software-Development-Blog-Template/blob/dbedfb5bcc10eded396b627f817588e62424f57e/screencapture-file-E-Internship-Blog-Layout-blog-layout-html-2025-07-19-01_26_32.png)
